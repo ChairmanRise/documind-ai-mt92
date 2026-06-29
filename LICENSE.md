@@ -1,4 +1,4 @@
-# 
+# Principal DocuMind guía. Descarga e instala con documentación detallada y verificación de compatibilidad — rápido, seguro y fácil de usar.
 
 
 
